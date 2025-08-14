@@ -1,0 +1,1 @@
+# SQL-Developer-Internship-Task-7-by-Suyash-Magdum
